@@ -1,2 +1,4 @@
 # chilled-vanilluxe
-i'm special
+Hello! I like watching anime and
+I like to eat noodles
+Am I Japanese yet?
